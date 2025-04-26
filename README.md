@@ -1,0 +1,1 @@
+Temporary TOS and Privacy Policy for Adhan Bot.
